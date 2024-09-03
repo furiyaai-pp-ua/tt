@@ -1,2 +1,2 @@
-# tt
-TikTok
+# TikTok
+https://www.tiktok.com/@furiyaai
